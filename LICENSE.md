@@ -1,4 +1,4 @@
-
+secure math for brainrots Script is the best math for brainrots Script, featuring aimbot and anti-ban. Safe and powerful for all your needs.
 
 
 
